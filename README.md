@@ -28,9 +28,9 @@
 
 无论你喜欢的是青春校园、人妻偷情、暗黑剧情还是女神女优，本页面都能帮助你快速进入高质量日本AV世界。推荐开启 VPN 访问，保障隐私并畅享无地域限制的观看体验。
 
-💡 温馨提示：本站不提供任何视频存储，仅作为资源站导航使用，请合法合规访问所推荐内容。
+ 温馨提示：本站不提供任何视频存储，仅作为资源站导航使用，请合法合规访问所推荐内容。
 
 
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/kong145/38582 ）</span>
